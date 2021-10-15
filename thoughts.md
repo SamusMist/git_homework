@@ -5,3 +5,7 @@ Strategy one is to try and limit the use of my mouse as much as I can without fe
 I find myself spending hours at a time working on homework without stepping away, so I will set a timer for breaks.
 
 Casey H. has been helpful by asking good questions I never thought to ask.
+
+I'm finally starting to understand this!
+However I still feel lost and overwhelmed a majority of the time.
+I am having fun though, and everyone is so nice and helpful!
